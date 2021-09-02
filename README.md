@@ -3,9 +3,9 @@ aiming to reach his goals and learn new skills and technologies
 that are new and challenging to learn 
 in addition i'm graduated as Energy Engineer 
 I have passion in bussnes adminstation and web development 
-for contact me you can reach me by linkedin and facebook
+ you can reach me by linkedin and facebook
+[my facebook account](https://www.facebook.com/mofalih64)
+ [my Linjedin account](https://www.linkedin.com/in/mofalih64) 
 
-https://www.linkedin.com/in/mofalih64
 
-https://www.facebook.com/mofalih64
 
